@@ -28,7 +28,7 @@ Team members
 
 Group No. 32
 
-Santwana Behara(Team Leader)
+Santwana Behera(Team Leader)
 
 Shibin Malakot
 
